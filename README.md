@@ -1,0 +1,1 @@
+# 28.05.17_tapsiriqlar_heftelik
